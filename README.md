@@ -1,0 +1,1 @@
+# Codifica-o-e-avalia-o-tempo-com-100000-n-mero
